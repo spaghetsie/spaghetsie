@@ -1,3 +1,6 @@
-Hi! Just a weirdo here who enjoys coding!
-
-Take care!
+             ／＞　 フ
+            | 　=　=| 
+          ／` ミ＿xノ 
+         /　　　　 |
+        /　 ヽ　　 ﾉ
+        │　　|　|　|
